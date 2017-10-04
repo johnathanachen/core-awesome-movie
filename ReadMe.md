@@ -3,7 +3,7 @@
 ## Synopsis
 This movie is a super awesome movie with a wicked awesome cast. It's the movie to see this Christmas! Don't miss it! You have to see it! Seriously, it's awesome! Do you get it yet....yes it's awesome!
 
-Superman: "Your worst enemy is a clow hahaha"
+Superman: "Your worst enemy is a clown hahaha"</b>
 Batman: "Your's is rock..."
 
 "Action packed comedy" - Phyllis Wong
