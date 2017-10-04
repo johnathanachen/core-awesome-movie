@@ -1,7 +1,7 @@
 # Awesome Movie
 
 ## Synopsis
-This movie is a super awesome movie with a wicked awesome cast. It's the movie to see this amazing holiday season! Don't miss this awesome film! You have to see it! Seriously, it's awesome! If you're awesome, (which you are), don't miss the Awesome Movie!
+This movie is a super awesome movie with an amazing cast. It's the movie to see this Christmas! Don't miss it! You have to see it! Seriously, it's awesome! Do you get it yet....yes it's awesome!
 
 ## Cast
 - Main Dude: One Punch Man Played by Mitchell 
